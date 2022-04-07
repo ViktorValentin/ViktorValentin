@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Viktor Valentin!
 - 👀 I’m interested in illustration, photography and animation!
-- 🌱 I’m currently learning visual arts at UFRGS :D
+- 🌱 I’m currently studying visual arts at UFRGS :D
 - 💞️ I’m looking to collaborate on animation and illustration projects!
 - 📫 How to reach me: 00287543@ufrgs.br
 
